@@ -1,4 +1,4 @@
-#  
+#  exclusive Script for enter brainrot heads is the best enter brainrot heads Script, featuring aimbot and speed. Safe and powerful for all your needs.
 
 
 
